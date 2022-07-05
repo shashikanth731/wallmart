@@ -1,7 +1,1 @@
-Hi Meena..
-how r u
-believe me
-trust me 
-please 
-please 
-please
+She is so much possessive now a days... 
