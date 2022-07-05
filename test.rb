@@ -1,1 +1,1 @@
-this file contains ruby script
+this file contains meena scolding lines
